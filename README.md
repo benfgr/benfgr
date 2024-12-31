@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @benfgr
 - 👀 I’m interested in product
-- 🌱 I’m currently learning product
 - 💞️ I’m looking to collaborate on product
 - 📫 How to reach me!
 
